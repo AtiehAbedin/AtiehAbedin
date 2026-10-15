@@ -24,4 +24,4 @@ I co-direct the Bioinformatics Working Group for the GUDMAP consortium, and I'm 
 
 ## Get in touch
 
-📧 atieh.abedin@yahoo.com · [Google Scholar](https://scholar.google.com/citations?user=xWW3hGQAAAAJ) · [LinkedIn](https://www.linkedin.com/in/atieh-abedin-3617058a)
+📧 atieh.abedin@yahoo.com · [Google Scholar](https://scholar.google.com/citations?user=xWW3hGQAAAAJ) · [LinkedIn](www.linkedin.com/in/atieh-abedin-do-ph-d-3617058a)
